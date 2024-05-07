@@ -1,7 +1,7 @@
 # CODSOFT-Task-02
 # Agency website
 
-Absolutely! Here's a more detailed description highlighting the key aspects of your success:
+Absolutely! Here's a more detailed description highlighting the key aspects of my success:
 
 🎨 **Visually Stunning Design**: my landing page captivates visitors with its visually appealing design. From the color scheme to the typography choices, every element is carefully crafted to create a cohesive and professional look.
 
